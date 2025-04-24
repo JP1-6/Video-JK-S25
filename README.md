@@ -1,2 +1,2 @@
 # Video-JK-S25
-my video compilation
+my video compilation assignment
